@@ -39,3 +39,4 @@
 - **Telegram:** [@Den_Demas](https://t.me)
 - **Email:** denisdemasyuk@gmail.com
 - **LinkedIn:** [Профиль LinkedIn](linkedin.com/in/denis-demasyuk-qa)
+- **Mobile:** +375 44 58 155 58 (Viber / WhatsApp)
